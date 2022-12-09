@@ -1,1 +1,1 @@
-# YOGA---Chap3
+# WD_CaseStudies_Chap3_Yoga_2022
